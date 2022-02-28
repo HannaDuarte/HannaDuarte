@@ -1,4 +1,4 @@
-### Hi I'm Hanna
+### Hi I'm Hanna :)
 
 ##
 <div align="center">
